@@ -23,3 +23,5 @@ yumeshippers!! (i'm a hyper-sharing Dante yume so feel free to sit with me whene
 ❌ DNI
 
 proshippers, racists, ableist
+
+![alt text](IMG_2596.gif)
