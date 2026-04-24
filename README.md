@@ -20,7 +20,7 @@ i also listen to any kind of music - if it sounds good i'll like it but my fav a
 
 yumeshippers!! (i'm a hyper-sharing Dante yume so feel free to sit with me whenever I use any of my Dante pony^^), any ships as long as they are ethicially legal and aren't TOXIC (arlefuri for example).
 
-❌ DNI
+❌ D̶N̶I̶
 
 proshippers, racists, ableists
 
