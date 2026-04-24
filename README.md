@@ -1,5 +1,5 @@
 # READ
-Dera's safe zone \(⌒▽⌒)✮⋆˙
+𝓓𝓮𝓻𝓪'𝓼 𝓼𝓪𝓯𝓮 𝔃𝓸𝓷𝓮 \(⌒▽⌒)✮⋆˙
 
 (eng/pl) !!
 
@@ -22,8 +22,8 @@ yumeshippers!! (i'm a hyper-sharing Dante yume so feel free to sit with me whene
 
 ❌ DNI
 
-proshippers, racists, ableist
+proshippers, racists, ableists
 
-DERA'S OUT
+ᴅᴇʀᴀ'ꜱ ᴏᴜᴛ
 
 ![alt text](IMG_2596.gif)
